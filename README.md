@@ -1,1 +1,1 @@
-# hello-world-
+# hello-world- Im still a Little lost in what the heck im doing on this site.lol I'm hoping that all this will eventually make sense to me. Even if it'takes longer than expected.lol Im pretty patient and highly driven and self motivated. I can truly say that im thankul for all the challenges of life that has come my way. I am who i am today because of what i have experienced and been challenged by. All so that one day I can gain that success and comfort of life ive always wanted for my future family of my own.
